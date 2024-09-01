@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sillylittlemanhehe
+- 👀 I’m interested in ARGS, OCs, lore, ciphers, codes
+- 🌱 I’m currently learning how to make a ARG
+- 💞️ I’m looking to collaborate on nothing for now
+- 📫 How to reach me: on discord @sillylittlemanhehe
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I do writing and art
